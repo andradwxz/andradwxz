@@ -4,4 +4,5 @@ Estou estudando no Alura e no GitHub.
 
 Espero sempre evoluir cada vez mais.
 
-![](https://media1.tenor.com/m/iubj_ZG4L7gAAAAd/corinthians-mundial.gif)
+![](https://media1.tenor.com/m/wGKbmUEHbF8AAAAd/abell46s-reface.gif)
+
